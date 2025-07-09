@@ -3,7 +3,7 @@ In today’s fast-evolving professional world, employers are no longer just look
 
 Unlike traditional learning methods that focus on theory and memorization, skill-based education emphasizes practical application and problem-solving abilities. It empowers students with the tools they need to adapt, innovate, and perform in real-life situations—something a textbook alone can’t teach.
 
-✅ Key Reasons Why Skill-Based Learning Matters:
+ Key Reasons Why Skill-Based Learning Matters:
 
 Encourages critical thinking and decision-making
 
